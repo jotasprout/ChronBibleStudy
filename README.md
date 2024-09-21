@@ -28,4 +28,3 @@ Https://Www.Biblegateway.Com/Reading-Plans/Chronological
 https://www.logos.com/grow/nook-chronological-bible-reading-plan/
 
 **I can't find them but will keep looking**
-
